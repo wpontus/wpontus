@@ -11,7 +11,7 @@ Designing solutions of the technical layer of Microsoft 365 products, both Physi
   
 - 💞️ I’m looking to collaborate on community projects
   
-- 📫 How to reach me -> here on Github
+- 📫 How to reach me -> here on wendtpontus@gmail.com
 
 
 
